@@ -1,0 +1,1 @@
+bu repoyu okuyan sevgili insan. 23.02.2022 tarihinden yazıyorum. dün html kursunu bitirdim. bugün de son 1 saatlik bir video izleyip css çalılmaya başlayacağım. unutmamak çok çok önemli.
